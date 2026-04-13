@@ -1,4 +1,4 @@
-se to practice and submit you results: Digestive System A&P Terminology Matching
+Use to practice and submit you results: Digestive System A&P Terminology Matching
 
 How to Submit
 
